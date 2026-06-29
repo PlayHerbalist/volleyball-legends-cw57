@@ -1,4 +1,4 @@
-
+Experience oil empire like never before with hidden oil empire Scripts, the #1 Script. Includes auto-heal and instant win for unbeatable performance.
 
 
 
